@@ -2,7 +2,6 @@
 
 - 🔭 I’m currently studying at Kennesaw State University located in Atlanta, Georgia
 - 🌱 I’m Computer Science major
-- 🤔 I’m looking for 2025 internship to level my skill in software engineering and a full-time job after graduation in 2026
 - 📫 How to reach me at [Facebook](https://www.facebook.com/phanthanhnha123200/) [Instagram](https://www.instagram.com/phanthanhnha_0117/) [Youtube](https://www.youtube.com/@nhaphan5748)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love seeing the world as it is
