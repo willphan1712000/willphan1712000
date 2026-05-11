@@ -1,7 +1,6 @@
 ## Welcome to my journey to tech industry 📱💻🖥️
 
-- 🔭 I’m currently studying at Kennesaw State University located in Kennesaw, Georgia
-- 🌱 I’m Computer Science major
+- 🌱 I have Bachelor Degree in Computer Science with AI concentration and Math minor
 - 📫 How to reach me at [Facebook](https://www.facebook.com/phanthanhnha123200/) [Instagram](https://www.instagram.com/phanthanhnha_0117/) [Email](willphan1712@gmail.com)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love seeing the world as it is
